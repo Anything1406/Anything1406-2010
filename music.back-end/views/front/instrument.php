@@ -7,7 +7,7 @@ The instruments can range from Trumpets, violins, piano's and guitars.
 -Piano: The piano is played using a keyboard and is widely employed in classical and jazz music. The piano usually has 88 white and black keys which lets of a sound when the keys are pressed as they put pressure on the strings and silenced when released.
 -Guitar: Guitar is one of the most popular instruments in music. It is a string instuments involving from 4 to 18 strings either produced from an electric or acoustic guitar.
 
-Music Groups are always involved and accepted at the Townsville Community Music Centre. Music groups are a good way to bond with each member and produce music for the community to enjoy. Groups can generally sing any sort of music as each member plays a different role. If looking to join a group of create one then Townsville Community Music Centre is the place to do it.
+Music Groups are always involved and accepted at the Townsville Community Music Centre. Music groups are a good way to bond with each member and produce music for the community to enjoy. Groups can generally perform any sort of music as each member plays a different role or instrument. If you are looking to join a group or create one then Townsville Community Music Centre is the place to do it.
 
 
 - Music can be found in majority of cultures and may have been existing for at least 55,00 years, which is similar to Towsnville Community Music Centre however has only been around for 30 years in 2013. </p>
